@@ -22,9 +22,8 @@ React-pdf           -   PDF Rendering
 
 Cell: (708) 267-3342
 
-Email: jacobsimonek19@gmail.com
+Email: jacobsimonek676@gmail.com
 
-Mail: 8545 22nd Ave, Kenosha, WI. 53143
 
 # Updates
 
